@@ -6,3 +6,6 @@
 
 
 //Wegeda is resuscitating and picking up some momentum.
+
+
+//Committing for committing sake. My bad! Wireframe sketch took most of my day.
